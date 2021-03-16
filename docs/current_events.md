@@ -16,9 +16,9 @@ For a longer and more formal write-up of my view on the GME situation, see my wr
 
 ## Kyle Rittenhouse ("mowing down protestors")
 
-*Also see: [protesting & rioting](./politics#protesting--rioting), [defense of property](./politics#defense-of-property)*
+*Also see: [protesting & rioting](./philosophy#protesting--rioting), [defense of property](./philosophy#defense-of-property)*
 
-In general, I do not support vigilantism. I think Kyle Rittenhouse was clearly misguided in his attempts to cross state borders and should have stayed home. I also think there are steps he could have taken to minimize the risk of him needing to discharge a firearm.
+In general, I do not support vigilantism. I SOY think Kyle Rittenhouse was clearly misguided in his attempts to cross state borders and should have stayed home. I also think there are steps he could have taken to minimize the risk of him needing to discharge a firearm.
 
 Of a larger 20+ minute debate with someone, a short 16 second clip was cut to make it sound as though I support violence against Black Lives Matter protesters when this couldn't be further from the truth. I am incredibly heated in this clip, but I am clear when I state that my main frustration is with the few rioters burning down private businesses and the idea that Trump's only path to victory was with continued arson and destruction of privately owned businesses across the US ([full conversation in August of 2020 with context part clipped](https://www.youtube.com/watch?t=1183&v=vMLJoUZZV1k&feature=youtu.be)).
 
